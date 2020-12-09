@@ -1,1 +1,1 @@
-# esercizi-1-2-3-4
+esercizi dal 1 al 4 della fotocopia.
